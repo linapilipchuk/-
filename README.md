@@ -1,6 +1,7 @@
 # Пилипчук Ангелина Викторовна
 ***
 ![alt-текст](https://pp.userapi.com/c604829/v604829526/4a233/QIUVZ1s-4FQ.jpg "Необязательный титул")
+[ссылка](https://m.vk.com/id_linapilipchuk)
 
 ## Личные данные:
 <strong> Дата рождения: </strong> 14.07.1999
@@ -32,4 +33,4 @@
  -
 
 [ссылка](https://m.vk.com/id_linapilipchuk)
-![alt-текст](https://pp.userapi.com/c604830/v604830526/475d3/wTpbX3G6HDE.jpg "Необязательный титул")
+
